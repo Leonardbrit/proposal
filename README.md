@@ -11,6 +11,6 @@
 <p>The third chapter is the acknowledgement that, in this moment, you realize the importance of the research. What’s great about this blog, apart from the presentation, is that it doesn’t just elaborate on the research. After that, you have to provide a much deeper knowledge of the subject matter, and support it with facts. The conclusion, being the last bit of the package, is the summary of the major points, and it has to be focusing on the core objective of your research. Let’s see everything is covered in this segment.</p>
 
 More info:
-https://www.doorkeeper.jp/users/c86rmbi8wrsaoj4639ygxxl5yf9x8p?locale=en
-https://localendar.com/event?DAM=PublishedEvent&m=610360&event_id=5&calendar_id=610360&more_info=N&export_date=Feb%2026,%202022&category=1
-https://sitebuilder157895.dynadot.com/
+<p>https://www.doorkeeper.jp/users/c86rmbi8wrsaoj4639ygxxl5yf9x8p?locale=en</p>
+<p>https://localendar.com/event?DAM=PublishedEvent&m=610360&event_id=5&calendar_id=610360&more_info=N&export_date=Feb%2026,%202022&category=1</p>
+<p>https://sitebuilder157895.dynadot.com/</p>
